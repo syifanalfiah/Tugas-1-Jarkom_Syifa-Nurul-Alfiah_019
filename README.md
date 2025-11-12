@@ -1,0 +1,1 @@
+# Tugas-1-Jarkom_Syifa-Nurul-Alfiah_019
